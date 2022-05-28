@@ -1,4 +1,5 @@
 Hi, I’m David
-I’m interested in heavy metal
-I’m currently learning how to play a guitar
+
+I like fast cars and heavy metal
+
 Reach me on instagram @trzydziesty_pierwszy
